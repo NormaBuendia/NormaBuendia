@@ -3,7 +3,7 @@
 
 
                           😊 <Soy una mujer muy entusiasta que le encantan los retos> 
-                          👩‍🎓​ <Estudiante de Laboratoria, pronto 🚀​🚀​a convertirse en Front-End Developer>
+                          👩‍🎓​ <Estudiante de Laboratoria, y proximamente 🚀​🚀​a convertirse en Front-End Developer>
                                       🔜🔜 <Trabajando por cumplir mis sueños>
 
 <img align='right' src="https://media.giphy.com/media/FGG1TRyh7mHMk/giphy.gif">
